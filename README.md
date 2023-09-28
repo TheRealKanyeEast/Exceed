@@ -1,3 +1,4 @@
 ## Exceed.gg Roblox Script Hub
-Weekly Updates\
-
+Weekly Updates \
+No Bans \
+No Payments
